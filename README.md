@@ -1,2 +1,2 @@
 # LearningVCS
-[Utkarsh Singh](https://github.com/Utkarsh7867
+[Utkarsh Singh](https://github.com/Utkarsh7867)
